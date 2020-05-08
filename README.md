@@ -1,4 +1,4 @@
-# Post-doc-position (University of Potsdam, 11 months) 
+# Post-doc position (University of Potsdam, 11 months) 
 
 The Research Group Cognitive Science: Methods and Language (CSML) at the University of Potsdam, Germany, is recruiting a Post-doctoral researcher for a full time position (40 hours per week), for a period of 11 months (starting date: 01.08.2020)
 
